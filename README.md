@@ -1,3 +1,5 @@
+Site do Ricky Rock : https://www.dcc.fc.up.pt/~ricroc/aulas/1718/so/ 
+
 ```Image
 ║║╔║║╔╗ ║ 
 ╠╣╠║║║║ ║ 
